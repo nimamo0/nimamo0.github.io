@@ -1,1 +1,1 @@
-# nimamo0.github.io
+# nimamo nič
